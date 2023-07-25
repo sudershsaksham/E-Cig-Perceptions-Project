@@ -27,5 +27,5 @@ population while introducing ways to increase awareness among students.
 The findings in this report regarding age, sex and smoking habits playing a role in risk
 perception line up with other reports. 
 Since e-cigarette use is a result of
-6multifaceted factors, a comprehensive study tackling the underlying reasons could help decrease
+multifaceted factors, a comprehensive study tackling the underlying reasons could help decrease
 use among students
